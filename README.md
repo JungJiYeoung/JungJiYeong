@@ -1,5 +1,12 @@
 ### Hi there 👋
 
+I'm Jiyeong
+
+I'm very cute girl~ and i wanna be a hot lady.
+
+seeya
+
+
 <!--
 **JungJiYeoung/JungJiYeoung** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
